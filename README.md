@@ -24,16 +24,6 @@
 链接: https://pan.baidu.com/s/1gglMLN8DQpiAGkhS9MRANg?pwd=6qp1 提取码: 6qp1
 --来自百度网盘超级会员v3的分享
 
-
-通过网盘分享的文件：TED演讲文稿和视频等2个文件
-
-链接: https://pan.baidu.com/s/1Nq2jjTSJ6XE6-fDb0iJRqA?pwd=sujc 提取码: sujc
-
-通过网盘分享的文件：考研真题和考研资料
-
-链接: https://pan.baidu.com/s/1huRNiLFUbA2t5zWwgxRXMA?pwd=227u 提取码: 227u
-
-
 ### 项目合集(项目不断更新中，包含java、vue、python、Android、微信小程序等项目)
 
 链接: https://pan.baidu.com/s/1nY-zhvAK0CXYcn3g7LzQnQ?pwd=id3c 提取码: id3c
@@ -45,6 +35,18 @@
 
 链接: https://pan.baidu.com/s/1W0dDcoZmayG0c7USJDYBYg?pwd=nqd7 提取码: nqd7
 --来自百度网盘超级会员v3的分享
+
+
+
+通过网盘分享的文件：TED演讲文稿和视频等2个文件
+
+链接: https://pan.baidu.com/s/1Nq2jjTSJ6XE6-fDb0iJRqA?pwd=sujc 提取码: sujc
+
+通过网盘分享的文件：考研真题和考研资料
+
+链接: https://pan.baidu.com/s/1huRNiLFUbA2t5zWwgxRXMA?pwd=227u 提取码: 227u
+
+
 
 通过网盘分享的文件：各类简历各类PPT等2个文件
 
